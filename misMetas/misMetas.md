@@ -6,3 +6,6 @@ Voy a ponerme retos para la siguiente semana y poder mejorar como persona y adic
 
 ## Meta 2
 -Organizar el desayuno para comer bien en el día
+
+## Meta 3
+-Cumplir con los indicadores para comisionar en el trabajo y estar más tranquilo económicamente.
