@@ -15,3 +15,6 @@ Voy a ponerme retos para la siguiente semana y poder mejorar como persona y adic
 
 ## Meta 5
 -Ir temprano a estudiar para no generar faltas de asistencia y continuar con la tecnología que me gusta tanto.
+
+## Meta 6
+-Llegar bien a la casa, saludar a mi mujer y mis perritos, sacarlos para que hagan sus necesidades y acostarme temprano para continuar con la rutina.
