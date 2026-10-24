@@ -3,3 +3,6 @@ Voy a ponerme retos para la siguiente semana y poder mejorar como persona y adic
 
 ## Meta 1
 -Levantarme temprano para las reuniones a las 6:30Am en la empresa y para empezar las rutas rápido.
+
+## Meta 2
+-Organizar el desayuno para comer bien en el día
