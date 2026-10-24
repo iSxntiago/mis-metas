@@ -9,3 +9,6 @@ Voy a ponerme retos para la siguiente semana y poder mejorar como persona y adic
 
 ## Meta 3
 -Cumplir con los indicadores para comisionar en el trabajo y estar más tranquilo económicamente.
+
+## Meta 4
+-Hacer la ruta rápido y bien para llegar a hacer trabajos y practicar código de JavaScript, CSS, Node.JS, React y GitHub.
