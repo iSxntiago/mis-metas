@@ -18,3 +18,6 @@ Voy a ponerme retos para la siguiente semana y poder mejorar como persona y adic
 
 ## Meta 6
 -Llegar bien a la casa, saludar a mi mujer y mis perritos, sacarlos para que hagan sus necesidades y acostarme temprano para continuar con la rutina.
+
+## Meta 7
+-Trabajar diario y duro para sacar a mi familia adelante y ser una persona exitosa e integra para ayudar a los demás.
