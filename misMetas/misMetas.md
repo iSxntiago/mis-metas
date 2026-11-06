@@ -22,3 +22,6 @@ Voy a ponerme retos para la siguiente semana y poder mejorar como persona y adic
 ## Meta 7
 -Trabajar diario y duro para sacar a mi familia adelante y ser una persona exitosa e integra para ayudar a los demás.
 -----------------------------------------------------------------------------------------------------------------------
+
+## Meta 8
+- Destacar en todos los proyectos en los que esté por mi actitud, mis ganas de aprender y mi creatividad para resolver problemas y brindarles soluciones adecuadas.
